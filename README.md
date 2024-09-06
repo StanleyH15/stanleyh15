@@ -1,5 +1,9 @@
 ## Hi there 👋
-
+my name is stanley hyppolite
+i play football at judson university
+i was born in haiti but was raised in fort myers florida
+you can reach me @zoelil509@gmail.com
+my last wish is to hack the White house.
 <!--
 **StanleyH15/stanleyh15** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
